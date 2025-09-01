@@ -1,8 +1,8 @@
-# AngryWhiteMen.org: Tracking White Supremacy  
+# Angry White Men: Tracking White Supremacy  
 A collection of white nationalists, overt Neo-Nazis, fascists, anti-feminists, and Islamophobes.  
 By 2016 the alt-right became synonymous with white supremacy.  
   
-*Archived links for the blog AngryWhiteMen.org, which went offline in August 2025*  
+*Archived links for the blog angrywhitemen.org, which went offline in August 2025*  
   
 2025-07-30 [Christian Nationalists Defend Proposed Whites Only Community](https://web.archive.org/web/20250730172559/https://angrywhitemen.org/2025/07/30/christian-nationalists-defend-proposed-whites-only-community/)  
 2025-07-24 [Auron Macintyre America Isnt a Nation of Immigrants Its a Nation of Conquerors](https://web.archive.org/web/20250724195632/http://angrywhitemen.org/2025/07/24/auron-macintyre-america-isnt-a-nation-of-immigrants-its-a-nation-of-conquerors/)  
