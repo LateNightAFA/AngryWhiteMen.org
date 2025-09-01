@@ -1,6 +1,6 @@
 # AngryWhiteMen.org: Tracking White Supremacy  
-"A collection of white nationalists, overt Neo-Nazis, fascists, anti-feminists, and Islamophobes.  
-By 2016 the alt-right became synonymous with white supremacy."  
+A collection of white nationalists, overt Neo-Nazis, fascists, anti-feminists, and Islamophobes.  
+By 2016 the alt-right became synonymous with white supremacy.  
   
 *Archived links for the blog AngryWhiteMen.org, which went offline in August 2025*  
   
